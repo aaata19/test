@@ -1,5 +1,3 @@
-hello world!!! what :DDD
-=======
-hello world!!!
-huda,
-Tudor >>>>>
+
+I AM THE SUPREME GOD OF THIS PLANET
+
