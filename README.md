@@ -1,1 +1,1 @@
-hello world!
+I AM THE SUPREME GOD OF THIS PLANET
